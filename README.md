@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do JefersonLucas161😁
+## Bem-vindo(a) ao perfil do JefersonLucas161
 
  <div>
    <a href="https://github.com/Jefersonlucas161">
